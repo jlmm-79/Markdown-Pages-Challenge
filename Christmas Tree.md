@@ -1,4 +1,4 @@
-# How to Set Up a Natural Christmas Tree - The Simplified Version
+# Setting Up a Natural Christmas Tree - The Simplified Version
 
 ![Relative](/ChristmasTree.jpg)
 
