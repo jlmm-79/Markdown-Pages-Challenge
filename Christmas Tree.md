@@ -4,17 +4,20 @@
 #### The following is a step-by-step guide to setting up a natural Christmas tree so that you and your family can better enjoy the Christmas spirit.
 
 ## 1. Choosing and Storing Your Tree
-#### - Know Which Kind of Tree You Want.
+#### 
+- Know Which Kind of Tree You Want.
 - Buy Your Tree, Stand and Watering System.
 - Store it in a Cool, Dark Place.
 - Give Your Tree a Shake.
 ## 2. Setting Up Your Tree
-#### - Decide Where to Put Your Tree.
+#### 
+- Decide Where to Put Your Tree.
 - Place the Tree in Your Stand/Watering System
 - Add At Least a Gallon of Water to the Watering System
 - Surround the Stand/Watering System with a Tree Bag
 ## 3. Decorating Your Tree
-#### - Cover the Tree Bag with a Skirt
+#### 
+- Cover the Tree Bag with a Skirt
 - String Your Lights
 - Add Your Ornaments
 - Keep Your Tree Watered
