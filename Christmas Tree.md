@@ -9,7 +9,7 @@
 ## 1. Choosing and Storing Your Tree
 #### 
 - Know Which Kind of Tree You Want.
-- Buy Your Tree, Stand and Watering System.
+- Buy Your Tree, Stand, and Watering System.
 - Give Your Tree a Shake.
 - Store it in a Cool, Dark Place.
 ## 2. Setting Up Your Tree
