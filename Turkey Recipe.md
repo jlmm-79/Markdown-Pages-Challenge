@@ -28,4 +28,4 @@
 ![Relative](/BaconTurkey.jpg)
 7. To test whether your turkey is cooked, insert a skewer into the thickest part of the leg and check that the juices are running clear, rather than pink. As oven temperatures and turkey shapes and sizes vary, it is crucial to check your turkey about 30 minutes before the calculated roasting time. If the juices are pink, roast for another 15 minutes and check again. Repeat as necessary until the turkey is cooked.
 8. Transfer the turkey to a warmed platter and remove the parson’s nose, wings, and tips of the drumsticks; reserve these for the gravy. Leave the turkey to rest in a warm place for at least 45 minutes; make the gravy in the meantime. Remove the bay leaves from under the skin before carving. Serve the turkey with the piping hot gravy, stuffing, and accompaniments.
-For more recipes directly from the famous Television Star himself, visit [his official website!](https://www.gordonramsay.com/gr/recipes/)
+### For more recipes directly from the famous Television Star himself, visit [his official website!](https://www.gordonramsay.com/gr/recipes/)
