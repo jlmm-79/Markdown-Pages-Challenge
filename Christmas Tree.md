@@ -10,8 +10,8 @@
 #### 
 - Know Which Kind of Tree You Want.
 - Buy Your Tree, Stand and Watering System.
-- Store it in a Cool, Dark Place.
 - Give Your Tree a Shake.
+- Store it in a Cool, Dark Place.
 ## 2. Setting Up Your Tree
 #### 
 - Decide Where to Put Your Tree.
